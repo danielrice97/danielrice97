@@ -1,4 +1,10 @@
-### Hi there 👋
+### Dan Rice's Intro 
+
+Made Half a Million in crypto, lost it, now here at Northcoders And excited to Go again with my Big Scheme
+
+ 🌱 Vegan
+🗽 Libertarian and Anarcho-Capitlist ❤️❤️
+✮ Dark Triad Individual with dark humuor despite my shyness
 
 <!--
 **danielrice97/danielrice97** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
