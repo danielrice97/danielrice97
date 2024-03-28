@@ -9,7 +9,7 @@ Made Half a Million in crypto, lost it, now here at Northcoders And excited to G
 
 Lets code some world changing shit! 
 
-(Also made some apps in my teenage years, went to Apple HQ and wanna get back doing and back to where i was)
+(Also made some apps in my teenage years, went to Apple HQ and wanna get back Coding as enjoy it)
 
 <!--
 **danielrice97/danielrice97** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
