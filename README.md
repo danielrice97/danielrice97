@@ -5,7 +5,7 @@ Made Half a Million in crypto, lost it, now here at Northcoders And excited to G
  🌱 Vegan
 🗽 Libertarian and Anarcho-Capitlist ❤️❤️
 ✮ Dark Triad Individual with dark humuor despite my shyness
-😄 Have awesome sexy partner and best friend 
+😄 Have Great partner and best friend 
 
 Lets code some world changing shit! 
 
